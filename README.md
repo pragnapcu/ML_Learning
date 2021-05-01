@@ -1,1 +1,1 @@
-### I have made up this notes from different sources for quick revision. 
+### This material is from different sources for a quick revision. 
